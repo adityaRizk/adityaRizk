@@ -1,6 +1,6 @@
 ### Hi minnaaaaaaaaaaaaaaaaaa 👋
-![Tux, the Linux mascot](/fotto.jpg)
-![Tux, the Linux mascot](/R.jpg)
+![Tfoto bg](/fotto.jpg)
+![foto haikyuu](/R.jpg)
 
 <!--
 **adityaRizk/adityaRizk** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
