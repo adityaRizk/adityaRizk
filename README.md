@@ -1,8 +1,8 @@
 ### Hi minnaaaaaaaaaaaaaaaaaa 👋
-![Wallpaper](/fotto.jpg)
 ![Tfoto bg](/fotto.jpg)
+
+
 ![foto haikyuu](/R.jpg)
-https://github.com/adityaRizk/adityaRizk/assets/111104157/b50d6a5a-c043-4ffd-b533-76f0fe86fe95
 
 <!--
 
