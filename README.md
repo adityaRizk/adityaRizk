@@ -1,9 +1,5 @@
-### Hi minnaaaaaaaaaaaaaaaaaa 👋
-![Tfoto bg](/fotto.jpg)
-
-
-![foto haikyuu](/R.jpg)
-
+### Wassup, nice to see you
+    Tryin to active again
 <!--
 
 
